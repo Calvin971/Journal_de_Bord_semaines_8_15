@@ -9,3 +9,4 @@ Nommer deux points à améliorer de votre présentation et expliquer comment vou
 
 ### Présentation préférée
 Quelle présentation avez-vous préféré et pourquoi? 
+Ma présentation préféré était celle de jacobe, j'ai bien aimer sa façon de parler doucement et ces transition entre son écran et sa caméra.
